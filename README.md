@@ -1,2 +1,0 @@
-# oorbagal
-oorbagal boothaya
